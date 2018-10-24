@@ -12,7 +12,8 @@ There are 2 meetings:
 * One for beginners at every Tuesday, 19:00
 * One for advanced at every Thursday, 19:00
 
-[{Club group in vk}](https://vk.com/event172459259)
+[{Club group in vk (Ziferblat)}](https://vk.com/event172459259)<br>
+[{Club group in vk (community)}](https://vk.com/ulpankzn)
 
 ## The place
 
