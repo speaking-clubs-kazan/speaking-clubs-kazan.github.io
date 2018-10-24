@@ -1,3 +1,5 @@
+![photo](./photo.jpg)
+
 # Hebrew speaking club @ Ziferblat (Clockface)
 
 ## Overview
