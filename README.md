@@ -32,3 +32,9 @@ If you have a suggestion, please [report it](https://github.com/speaking-clubs-k
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
 | [French Clockface](/french/french_clockface)<br>[{vk.com}](https://vk.com/event120418108) | Every Saturday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+
+### Spanish speaking clubs
+
+| Name/link for details | Time & Price | Place |
+|-----------------------|--------------|-------|
+| [Español al revés](/spanish/espanol_al_reves)<br>[{vk.com}](https://vk.com/event142194299) | Every Sunday, 17:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |

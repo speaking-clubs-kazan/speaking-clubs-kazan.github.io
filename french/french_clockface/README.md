@@ -14,7 +14,7 @@ Just in case, here is a some language information:
 French is an official language of 33 countries. More than 43 countries speak French
 and it's the number two most popular second language in the world.
 
-[{Club group in vk}](https://vk.com/event120418108)<br>
+[{Club group in vk}](https://vk.com/event120418108)
 
 ## The place
 
