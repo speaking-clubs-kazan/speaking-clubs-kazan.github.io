@@ -2,7 +2,7 @@
 
 ## Overview
 
-Chineses - the most widespread language in a modern world.
+Chinese - the most widespread language in a modern world.
 
 More than 80 thousands of hieroglyphs plus 4 tones - the «китайская грамота» idiom
 didn't came out of nowhere! But it's not necessary to know all of those symbols
