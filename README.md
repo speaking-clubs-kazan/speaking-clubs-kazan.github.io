@@ -52,5 +52,5 @@ If you have a suggestion, please [report it](https://github.com/speaking-clubs-k
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Learning Hebrew (advanced)](/hebrew/learning_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Tuesday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
-| [Learning Hebrew (beginners)](/hebrew/learning_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Thursday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [Ulpan Hebrew (advanced)](/hebrew/ulpan_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Tuesday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [Ulpan Hebrew (beginners)](/hebrew/ulpan_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Thursday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
