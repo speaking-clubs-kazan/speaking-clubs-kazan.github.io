@@ -10,8 +10,8 @@ in order to speak Chinese. We're going to learn this practical subset that is
 enough for us to communicate.
 
 There are 2 meetings:
-* One for beginners at every Tuesday
-* One for advanced at every Thursday
+* One for beginners at every Tuesday, 19:00
+* One for advanced at every Thursday, 19:00
 
 [{Club group in vk}](https://vk.com/event169932534)
 
