@@ -1,6 +1,6 @@
 <table>
   <tr><td>
-    <image src="https://avatars2.githubusercontent.com/u/44372866?s=200&v=4"/>
+    <image src="https://avatars2.githubusercontent.com/u/44430516?s=400&u=6fea2d2e02b453ea48e2cea9ead958d4a819ebb9&v=4"/>
   </td><td>
     <h1>Speaking clubs in Kazan</h1>
     Curated list of different speaking clubs in Kazan<br>
