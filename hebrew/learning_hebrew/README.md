@@ -5,6 +5,7 @@
 Hebrew - one of the most ancient languages. It's at least 3500 years old.
 There is a legend that this world was written in Hebrew...
 
+We're not only speaking Hebrew here, but also doing translations, reading and writing!
 A skill to write and speak a visa-free entry country language - isn't that super useful?
 
 There are 2 meetings:
