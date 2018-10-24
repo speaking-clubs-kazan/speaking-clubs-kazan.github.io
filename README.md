@@ -38,3 +38,10 @@ If you have a suggestion, please [report it](https://github.com/speaking-clubs-k
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
 | [Español al revés](/spanish/espanol_al_reves)<br>[{vk.com}](https://vk.com/event142194299) | Every Sunday, 17:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+
+### Chinese speaking clubs
+
+| Name/link for details | Time & Price | Place |
+|-----------------------|--------------|-------|
+| [Chinese Clockface (beginners)](/chinese/chinese_clockface)<br>[{vk.com}](https://vk.com/event169932534) | Every Tuesday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+| [Chinese Clockface (advanced)](/chinese/chinese_clockface)<br>[{vk.com}](https://vk.com/event169932534) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
