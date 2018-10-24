@@ -26,8 +26,8 @@ If you have a suggestion, please [report it](https://github.com/speaking-clubs-k
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
 | [GrowUp English club](/english/growup_english_club) | Every Wednesday, 19:00-21:00<br>**Free** | [GrowUp коворкинг](https://vk.com/growupkzn)<br>Айвазовского 3а |
-| [English Workout (Advanced)](/english/english_workout)<br>[{vk.com}](https://vk.com/event126029075) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
-| [English Workout (Beginners)](/english/english_workout)<br>[{vk.com}](https://vk.com/event126029075) | Every Sunday, 14:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [English Workout](/english/english_workout)<br>[{vk.com}](https://vk.com/event126029075) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [English Workout (beginners)](/english/english_workout)<br>[{vk.com}](https://vk.com/event126029075) | Every Sunday, 14:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 
 ### French speaking clubs
 
@@ -46,11 +46,11 @@ If you have a suggestion, please [report it](https://github.com/speaking-clubs-k
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
 | [Chinese Clockface (beginners)](/chinese/chinese_clockface)<br>[{vk.com}](https://vk.com/event169932534) | Every Tuesday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
-| [Chinese Clockface (advanced)](/chinese/chinese_clockface)<br>[{vk.com}](https://vk.com/event169932534) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+| [Chinese Clockface](/chinese/chinese_clockface)<br>[{vk.com}](https://vk.com/event169932534) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
 
 ### Hebrew speaking clubs
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Ulpan Hebrew (advanced)](/hebrew/ulpan_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Tuesday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [Ulpan Hebrew](/hebrew/ulpan_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Tuesday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 | [Ulpan Hebrew (beginners)](/hebrew/ulpan_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Thursday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
