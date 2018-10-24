@@ -25,7 +25,9 @@ If you have a suggestion, please [report it](https://github.com/speaking-clubs-k
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [GrowUp English club](/english/growup_english_club/) | Every Wednesday, 19:00-21:00<br>**Free** | [GrowUp коворкинг](https://vk.com/growupkzn)<br>Айвазовского 3а |
+| [GrowUp English club](/english/growup_english_club) | Every Wednesday, 19:00-21:00<br>**Free** | [GrowUp коворкинг](https://vk.com/growupkzn)<br>Айвазовского 3а |
+| [English Workout (Advanced)](/english/english_workout) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [English Workout (Beginners)](/english/english_workout) | Every Sunday, 14:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 
 ### French speaking clubs
 
