@@ -5,7 +5,7 @@
 Chineses - the most widespread language in a modern world.
 
 More than 80 thousands of hieroglyphs plus 4 tones - the «китайская грамота» idiom
-didn't came out of the nowhere! But it's not necessary to know all of those symbols
+didn't came out of nowhere! But it's not necessary to know all of those symbols
 in order to speak Chinese. We're going to learn this practical subset that is
 enough for us to communicate.
 
