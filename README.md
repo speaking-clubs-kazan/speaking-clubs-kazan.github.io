@@ -57,7 +57,7 @@ If you have a suggestion, please [report it](https://vk.com/speaking_clubs_kazan
 | [Ulpan Hebrew](/hebrew/ulpan_hebrew)<br>[{vk}](https://vk.com/event172459259) | Every Tuesday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 | [Ulpan Hebrew (beginners)](/hebrew/ulpan_hebrew)<br>[{vk}](https://vk.com/event172459259) | Every Thursday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 
-## ✖️ Closed speaking clubs coffin ✖️
+## ✖️ Closed speaking clubs ✖️
 
 Even if some speaking club is closed, it's useful to have an old community link so it's easier for someone to unite people and run speaking club again.
 
