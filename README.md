@@ -25,8 +25,8 @@ If you have a suggestion, please [report it](https://vk.com/speaking_clubs_kazan
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Nedetsky English](/english/growup_english_club)<br>[{instagram}(https://www.instagram.com/nedetsky_english/)] | Every Wednesday, 19:00-21:00<br>**Free** | [GrowUp коворкинг](https://vk.com/growupkzn)<br>Айвазовского 3а |
-| [Nedetsky English (beginners)](/english/growup_english_club)<br>[{instagram}(https://www.instagram.com/nedetsky_english/)] | Every Thursday, 19:00-21:00<br>**Free** | [Кафе CoffeeBean](https://vk.com/coffeebeanofficial)<br>Университетская 10а |
+| [Nedetsky English](/english/growup_english_club)<br>[{instagram}](https://www.instagram.com/nedetsky_english/) | Every Wednesday, 19:00-21:00<br>**Free** | [GrowUp коворкинг](https://vk.com/growupkzn)<br>Айвазовского 3а |
+| [Nedetsky English (beginners)](/english/growup_english_club)<br>[{instagram}](https://www.instagram.com/nedetsky_english/) | Every Thursday, 19:00-21:00<br>**Free** | [Кафе CoffeeBean](https://vk.com/coffeebeanofficial)<br>Университетская 10а |
 | [English Workout](/english/english_workout)<br>[{vk}](https://vk.com/event126029075) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 | [English Workout (beginners)](/english/english_workout)<br>[{vk}](https://vk.com/event126029075) | Every Sunday, 14:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 
