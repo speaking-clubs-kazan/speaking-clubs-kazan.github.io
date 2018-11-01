@@ -20,6 +20,8 @@ There are 2 meetings:
 * One for beginners at every Wednesday, 19:00
 * One for advanced at every Thursday, 19:00
 
+[{Club page in instagram}](https://www.instagram.com/nedetsky_english/)
+
 ## The place
 
 For beginners group, CoffeeBean cafe located at Университетская 10а.

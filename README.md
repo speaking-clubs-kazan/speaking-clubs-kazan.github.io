@@ -25,36 +25,36 @@ If you have a suggestion, please [report it](https://vk.com/speaking_clubs_kazan
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Nedetsky English](/english/growup_english_club) | Every Wednesday, 19:00-21:00<br>**Free** | [GrowUp коворкинг](https://vk.com/growupkzn)<br>Айвазовского 3а |
-| [Nedetsky English (beginners)](/english/growup_english_club) | Every Thursday, 19:00-21:00<br>**Free** | [Кафе CoffeeBean](https://vk.com/coffeebeanofficial)<br>Университетская 10а |
-| [English Workout](/english/english_workout)<br>[{vk.com}](https://vk.com/event126029075) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
-| [English Workout (beginners)](/english/english_workout)<br>[{vk.com}](https://vk.com/event126029075) | Every Sunday, 14:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [Nedetsky English](/english/growup_english_club)<br>[{instagram}(https://www.instagram.com/nedetsky_english/)] | Every Wednesday, 19:00-21:00<br>**Free** | [GrowUp коворкинг](https://vk.com/growupkzn)<br>Айвазовского 3а |
+| [Nedetsky English (beginners)](/english/growup_english_club)<br>[{instagram}(https://www.instagram.com/nedetsky_english/)] | Every Thursday, 19:00-21:00<br>**Free** | [Кафе CoffeeBean](https://vk.com/coffeebeanofficial)<br>Университетская 10а |
+| [English Workout](/english/english_workout)<br>[{vk}](https://vk.com/event126029075) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [English Workout (beginners)](/english/english_workout)<br>[{vk}](https://vk.com/event126029075) | Every Sunday, 14:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 
 ### French speaking clubs
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [French Clockface](/french/french_clockface)<br>[{vk.com}](https://vk.com/event120418108) | Every Saturday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+| [French Clockface](/french/french_clockface)<br>[{vk}](https://vk.com/event120418108) | Every Saturday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
 
 ### Spanish speaking clubs
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Español al revés](/spanish/espanol_al_reves)<br>[{vk.com}](https://vk.com/event142194299) | Every Sunday, 17:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+| [Español al revés](/spanish/espanol_al_reves)<br>[{vk}](https://vk.com/event142194299) | Every Sunday, 17:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
 
 ### Chinese speaking clubs
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Chinese Clockface (beginners)](/chinese/chinese_clockface)<br>[{vk.com}](https://vk.com/event169932534) | Every Tuesday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
-| [Chinese Clockface](/chinese/chinese_clockface)<br>[{vk.com}](https://vk.com/event169932534) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+| [Chinese Clockface (beginners)](/chinese/chinese_clockface)<br>[{vk}](https://vk.com/event169932534) | Every Tuesday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
+| [Chinese Clockface](/chinese/chinese_clockface)<br>[{vk}](https://vk.com/event169932534) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
 
 ### Hebrew speaking clubs
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Ulpan Hebrew](/hebrew/ulpan_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Tuesday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
-| [Ulpan Hebrew (beginners)](/hebrew/ulpan_hebrew)<br>[{vk.com}](https://vk.com/event172459259) | Every Thursday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [Ulpan Hebrew](/hebrew/ulpan_hebrew)<br>[{vk}](https://vk.com/event172459259) | Every Tuesday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [Ulpan Hebrew (beginners)](/hebrew/ulpan_hebrew)<br>[{vk}](https://vk.com/event172459259) | Every Thursday, 19:00<br>200 rub | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 
 ## ✖️ Closed speaking clubs coffin ✖️
 
