@@ -16,8 +16,16 @@ How? Visit our English speaking club at GrowUp!
 
 Free, fun and effective.
 
+There are 2 meetings:
+* One for beginners at every Wednesday, 19:00
+* One for advanced at every Thursday, 19:00
+
 ## The place
 
-GrowUp co-woking located at Айвазовского 3а.
+For beginners group, CoffeeBean cafe located at Университетская 10а.
+
+[CoffeeBean group in vk](https://vk.com/coffeebeanofficial)
+
+For advanced group, GrowUp co-woking located at Айвазовского 3а.
 
 [{GrowUp group in vk}](https://vk.com/growupkzn)
