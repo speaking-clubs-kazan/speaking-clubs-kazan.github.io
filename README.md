@@ -25,6 +25,7 @@ If you have a suggestion, please [report it](https://vk.com/speaking_clubs_kazan
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
+| [Iren English](/english/iren_english)<br>[{vk}](https://vk.com/iren_english) | Every Wednesday, 19:00<br>2.5 rub/minute | [Тайм-кафе New York](https://vk.com/nycoffee_kazan)<br>Большая Красная 34/16 |
 | [Nedetsky English](/english/nedetsky_english)<br>[{instagram}](https://www.instagram.com/nedetsky_english/) | Every Wednesday, 19:00-21:00<br>**Free** | [Коворкинг GrowUp](https://vk.com/growupkzn)<br>Айвазовского 3а |
 | [Nedetsky English (beginners)](/english/nedetsky_english)<br>[{instagram}](https://www.instagram.com/nedetsky_english/) | Every Thursday, 19:00-21:00<br>**Free** | [Кафе CoffeeBean](https://vk.com/coffeebeanofficial)<br>Университетская 10а |
 | [English Workout](/english/english_workout)<br>[{vk}](https://vk.com/event126029075) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
