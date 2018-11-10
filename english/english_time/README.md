@@ -4,7 +4,9 @@
 
 ## Overview
 
-English speaking club that happens every Monday at 6:30 PM (18:30).
+English Speaking Club is a place where we speak and play games (like Taboo or a guessing game) using English.
+
+Join us if you want more English speaking practice in your life or just looking for a place to find friends that like this wonderful language just like you do.
 
 [{Telegram chat}](http://t.me/english_club_kzn)
 
