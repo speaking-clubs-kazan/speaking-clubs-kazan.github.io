@@ -8,6 +8,7 @@ English Speaking Club is a place where we speak and play games (like Taboo or a 
 
 Join us if you want more English speaking practice in your life or just looking for a place to find friends that like this wonderful language just like you do.
 
+[{Club group in vk}](https://vk.com/kzneng)<br>
 [{Telegram chat}](http://t.me/english_club_kzn)
 
 ## The place
