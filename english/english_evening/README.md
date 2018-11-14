@@ -1,6 +1,6 @@
 ![photo](./photo.jpg)
 
-# English speaking club @ Kazanskoe Podvorye Hostel
+# English speaking club @ Kazanskoe Podvorye
 
 ## Overview
 
