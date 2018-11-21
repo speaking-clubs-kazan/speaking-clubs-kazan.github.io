@@ -9,7 +9,7 @@ There are two meetings:
 * Every Wednesday at 18:30, Татарстан 2 (КФУ)
 * Every Saturday at 18:00, Щапова 47 (Ziferblat)
 
-[{Club group in vk (Ziferblat)}](https://vk.com/event173960121)
+[{Club group in vk (Ziferblat)}](https://vk.com/event173960121)<br>
 [{Club group in vk (community)}](https://vk.com/espacentro)
 
 ## The place

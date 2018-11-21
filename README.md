@@ -43,7 +43,7 @@ If you have a suggestion, please [report it](https://vk.com/speaking_clubs_kazan
 
 | Name/link for details | Time & Price | Place |
 |-----------------------|--------------|-------|
-| [Español sin fronteras](/spanish/espanol_sin_fronteras)<br>[{vk}](https://vk.com/espacentro) | Every Wednesday, 18:30<br>? | <br>Татарстан 2 |
+| [Español sin fronteras](/spanish/espanol_sin_fronteras)<br>[{vk}](https://vk.com/espacentro) | Every Wednesday, 18:30<br>? | Институт филологии<br>Татарстан 2 |
 | [Español sin fronteras](/spanish/espanol_sin_fronteras)<br>[{vk}](https://vk.com/event173960121) | Every Saturday, 18:00<br>2.5 rub/minute (up to 330 rub) | <br>[Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 | [Español al revés](/spanish/espanol_al_reves)<br>[{vk}](https://vk.com/event142194299) | Every Sunday, 17:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Университетская 14 |
 
