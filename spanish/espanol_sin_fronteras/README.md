@@ -1,3 +1,5 @@
+![photo](./photo.jpg)
+
 # Spanish speaking club @ Espacentro
 
 ## Overview
