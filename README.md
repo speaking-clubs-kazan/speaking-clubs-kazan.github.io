@@ -65,4 +65,8 @@ If you have a suggestion, please [report it](https://vk.com/speaking_clubs_kazan
 
 Even if some speaking club is closed, it's useful to have an old community link so it's easier for someone to unite people and run speaking club again.
 
-> There is no data about closed speaking clubs in Kazan. If you know one, please [report it](https://vk.com/speaking_clubs_kazan).
+| Group link | Last activity date (approx) | Last place |
+|------------|-----------------------------|------------|
+| [Iren English](/english/iren_english) | October, 2018 | [Тайм-кафе New York](https://vk.com/nycoffee_kazan) |
+
+> If you know other speaking club that has perished, please [report it](https://vk.com/speaking_clubs_kazan).
