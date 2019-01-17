@@ -16,18 +16,12 @@ How? Visit our English speaking club at GrowUp!
 
 Free, fun and effective.
 
-There are 2 meetings:
-* One for beginners at every Wednesday, 19:00
-* One for advanced at every Thursday, 19:00
+The meeting happens on every Wednesday at 19:00 (until 21:00).
 
 [{Club page in instagram}](https://www.instagram.com/nedetsky_english/)
 
 ## The place
 
-For beginners group, CoffeeBean cafe located at Университетская 10а.
-
-[CoffeeBean group in vk](https://vk.com/coffeebeanofficial)
-
-For advanced group, GrowUp co-woking located at Айвазовского 3а.
+GrowUp co-woking located at Айвазовского 3а.
 
 [{GrowUp group in vk}](https://vk.com/growupkzn)
