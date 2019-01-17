@@ -8,7 +8,7 @@ The atmosphere is calm, people usually bring something with them, like snacks or
 
 It was originally organized by native speakers, so many foreigners come there.
 
-> Unfortunately, I can't find any info about them online.
+> Unfortunately, I couldn't find any info about them online.
 
 ## The place
 
