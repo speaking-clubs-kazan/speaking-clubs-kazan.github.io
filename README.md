@@ -29,6 +29,7 @@ If you have a suggestion, please [report it](https://vk.com/speaking_clubs_kazan
 | [Nedetsky English](/english/nedetsky_english)<br>[{instagram}](https://www.instagram.com/nedetsky_english/) | Every Wednesday, 19:00-21:00<br>**Free** | [Коворкинг GrowUp](https://vk.com/growupkzn)<br>Айвазовского 3а |
 | [English Evening](/english/english_evening)<br> | Every Wednesday, 19:00<br>**Free** | [Хостел Казанское Подворье](https://vk.com/baumana68)<br>Баумана 68 |
 | [English Workout](/english/english_workout)<br>[{vk}](https://vk.com/event126029075) | Every Thursday, 19:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
+| [English Mates](/english/english_mates) | Every Thursday, 18:30<br>**Free** | Блюхера 2 |
 | [English Workout (beginners)](/english/english_workout)<br>[{vk}](https://vk.com/event126029075) | Every Sunday, 14:00<br>2.5 rub/minute (up to 330 rub) | [Тайм-кафе Циферблат](https://vk.com/clockfacekzn)<br>Щапова 47 |
 
 ### French speaking clubs
